@@ -1,7 +1,9 @@
-## Hi, I'm Karina 🫶
+## Hi, I'm Karina
 
-✔️ Java Backend dev
+✔️ Java backend developer
 
 ✔️ RTU MIREA student
+
+✔️ Based in Moscow
 
 ✔️ Contacts: [telegram](https://t.me/famelaflame) 
