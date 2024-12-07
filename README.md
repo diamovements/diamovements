@@ -8,4 +8,4 @@
 
 
 <h3>🔗 Telegram: <a href=https://t.me/famelaflame>famelaflame</a></h3>
-<h3>🔗 Mail: karinaabdu6@gmail.com</h3>
+<h3>🔗 Mail: yuukiasuna0@bk.ru</h3>
